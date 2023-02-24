@@ -7,6 +7,8 @@ lksdfklsdjksgjksdgjkl
 ## Deployment
 fawekgrwjpgpmlwemléwemléw
 
+## How to contribute
+please contribute
 
 ## Purpose
 
